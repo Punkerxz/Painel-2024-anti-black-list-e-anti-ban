@@ -1,0 +1,1 @@
+# Painel-2024-anti-black-list-e-anti-ban
